@@ -12,4 +12,4 @@ agree to not divulge any confidential information obtained during my
 course of study.
 
 ##### 2017-03-13
-##### Signer: Bum Jin Gwak
+##### Signer: Bumjin Gwak
