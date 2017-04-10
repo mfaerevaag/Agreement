@@ -12,4 +12,4 @@ agree to not divulge any confidential information obtained during my
 course of study.
 
 ##### 2017-03-11
-##### Signer: Han,YoungKwang
+##### Signer: Han,Young Kwang
