@@ -11,5 +11,5 @@ detrimental to national security and to the interests of KAIST, and I
 agree to not divulge any confidential information obtained during my
 course of study.
 
-##### 2017-03-12
-##### Signer: Jeong Oh Kye
+##### 2017-04-10
+##### Signer: JeongOh Kye
