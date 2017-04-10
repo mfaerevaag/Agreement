@@ -12,4 +12,4 @@ agree to not divulge any confidential information obtained during my
 course of study.
 
 ##### 2017-04-10
-##### Signer: JeongOh Kye
+##### Signer: Jeong Oh Kye
