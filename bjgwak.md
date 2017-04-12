@@ -11,5 +11,5 @@ detrimental to national security and to the interests of KAIST, and I
 agree to not divulge any confidential information obtained during my
 course of study.
 
-##### 2017-03-13
+##### 2017-04-12
 ##### Signer: Bumjin Gwak
